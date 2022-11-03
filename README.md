@@ -9,7 +9,7 @@
 - 🔭 I’m currently Studying Computer Science  
   
 
-- 🌱 I’m currently learning Machine Learning  
+- 👨‍💻 Front-end Developer
   
 
 - 📫 How to reach me : harsh.hr.00012@gmail.com  
