@@ -15,7 +15,7 @@
 - 📫 How to reach me : harsh.hr.00012@gmail.com  
   
 
-- 📄 Resume : https://drive.google.com/file/d/1aCX-j303ZzXcun1lx3mBUJEDZUoK68qr/view?usp=sharing  
+- 📄 Resume : https://drive.google.com/file/d/1E26ocQA8cVn6mT4s8JC9VVZJFbMd6cEQ/view?usp=sharing  
   
 
 <br/>  
